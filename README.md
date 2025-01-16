@@ -1,0 +1,1 @@
+Per mirar data
